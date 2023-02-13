@@ -1,2 +1,2 @@
 # rozklad
-big big pencil cock
+big big pencil
